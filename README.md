@@ -1,0 +1,1 @@
+See the project breakdown on my portfolio: https://www.orest-cloud.xyz/project.html?id=7
